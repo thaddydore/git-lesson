@@ -8,3 +8,6 @@
 
 -lagos pools are clean
 -look left then look right before you cross the road
+
+-they are five magic words
+-please, i'm sorry, thanks, excuse me, you are welcome 
