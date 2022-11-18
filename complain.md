@@ -7,3 +7,4 @@
 -i disagree with you, lagos is not dirty
 
 -lagos pools are clean
+-look left then look right before you cross the road
