@@ -11,3 +11,5 @@
 
 - another is taking
 - someone is taking
+-i reserve my commit
+-make me anonymous
