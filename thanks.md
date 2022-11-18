@@ -9,4 +9,5 @@
 - I received a token today
 - some people have contributed again
 
+- another is taking
 - someone is taking
