@@ -5,3 +5,4 @@
 - Lagos pools are too dirty
 
 -Finally, you should visit Lagos somedays
+-Do visit someday
