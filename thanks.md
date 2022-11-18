@@ -11,3 +11,6 @@
 
 - another is taking
 - someone is taking
+
+-Be a thankful person always
+  -Don't be wearied in giving thanks
