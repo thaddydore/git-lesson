@@ -4,6 +4,7 @@
 
 - Lagos pools are too dirty
 
+Most times people tend to complain because of traffic
 - There is an argument going on
 
 - I think i have some points to make
