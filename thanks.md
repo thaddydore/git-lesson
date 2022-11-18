@@ -11,3 +11,6 @@
 
 - another is taking
 - someone is taking
+-no one contributed
+
+-all thanks to God almightyh
