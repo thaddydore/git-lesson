@@ -12,5 +12,3 @@
 - another is taking
 - someone is taking
 
--Some people are always grateful
--Some people are really ungrateful
