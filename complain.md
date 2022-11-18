@@ -3,6 +3,10 @@
 - Lagos Traffic is too bad
 
 - Lagos pools are too dirty
+
+
+The hardest part is always how to begin
+
 - Moyosore said the cost of living in lagos is quite expensive
 - Moyosore said robbery is really on the high side in Lagos state.
 
@@ -19,3 +23,4 @@ Most times people tend to complain because of traffic
 - Olabisi complained about inadequate health care.
 Lagos poll result is out
 How excited do we all feel about this.g
+

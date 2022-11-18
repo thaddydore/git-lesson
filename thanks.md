@@ -9,6 +9,10 @@
 - some people have contributed again
 - another is taking
 - someone is taking
+
+
+feels great , I must say thankyou
+
 -Moyosore's First Changes
 The Great Man is coming
 -Be a thankful person always
@@ -17,3 +21,4 @@ The Great Man is coming
 -make me anonymous
 - Olabisi contributed.
 In the time of magic....great magicians went into hiding
+
