@@ -7,3 +7,4 @@
 -Some people have contributed
 
 - I received a token today
+- some people have contributed again
