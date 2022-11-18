@@ -11,3 +11,6 @@
 
 - another is taking
 - someone is taking
+
+-Never forget to give thanks
+-Gracias
