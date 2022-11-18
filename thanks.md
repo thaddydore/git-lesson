@@ -2,4 +2,4 @@
 
 - We give thanks to you.
 - Many people don't give thanks
-  -May have contributed
+  -May have contributed to this
