@@ -3,6 +3,8 @@
 - Lagos Traffic is too bad
 
 - Lagos pools are too dirty
+- Lagos is a really noisy place
+    - But you can surely get around
 -my name is olajumoke
 -this is my story
 - Olabisi says police extort citizens
