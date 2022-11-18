@@ -11,3 +11,11 @@
 
 - another is taking
 - someone is taking
+
+-Be a thankful person always
+  -Don't be wearied in giving thanks
+-i reserve my commit
+-make me anonymous
+
+- Olabisi contributed.
+In the time of magic....great magicians went into hiding
