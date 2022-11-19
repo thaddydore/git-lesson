@@ -1,1 +1,1 @@
-console.log('hello we are coming to meet you');
+const people = 'something else so that my peole will rejoice in the new policy';
