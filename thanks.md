@@ -9,6 +9,8 @@
 - some people have contributed again
 - another is taking
 - someone is taking
+-i just craeted a meeting
+-i just want to commitsss
   -Moyosore's First Changes
   The Great Man is coming
   -Be a thankful person always

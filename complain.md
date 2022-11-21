@@ -3,6 +3,9 @@
 - Lagos Traffic is too bad
 
 - Lagos pools are too dirty
+-thanks for merging
+-nice working with you
+- i'm a Nigerian
 - Moyosore said the cost of living in lagos is quite expensive
 - Moyosore said robbery is really on the high side in Lagos state.
 
