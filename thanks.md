@@ -9,8 +9,8 @@
 - some people have contributed again
 - another is taking
 - someone is taking
--i just craeted a meeting
--i just want to commitsss
+  -i just craeted a meeting
+  -i just want to commitsss
   -Moyosore's First Changes
   The Great Man is coming
   -Be a thankful person always
@@ -19,3 +19,4 @@
   -make me anonymous
 - Olabisi contributed.
   In the time of magic....great magicians, some people have contributed
+  Time is running
